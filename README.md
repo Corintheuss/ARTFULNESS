@@ -10,7 +10,7 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 
 ![image alt](https://media.tenor.com/hp_-UsA63DoAAAAi/artful-artful-die-of-death.gif) 
 
-<img src="https://64.media.tumblr.com/bac40bfcbf6e2f25220ed72a629b722e/dda350f108491d4a-ce/s250x400/bc83a323ffa4c09cdcc674002c2d8f4101017638.gifv" width="200">
+<img src="https://64.media.tumblr.com/bac40bfcbf6e2f25220ed72a629b722e/dda350f108491d4a-ce/s250x400/bc83a323ffa4c09cdcc674002c2d8f4101017638.gifv" width="100">
 
 </div>
 
