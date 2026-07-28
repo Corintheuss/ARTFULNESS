@@ -2,7 +2,7 @@
 
 <img src="https://64.media.tumblr.com/966264a4c3db1ae07c9da1750b5eb096/30ed33ed3f0ee6ad-c5/s2048x3072/03c824503671f1ec3f5bd6a947024d9a5911f29a.pnj" width="1000">
 
-# 𓆩 ♱ 𓆪 ARTFUL'S SHOW 𓆩 ♱ 𓆪
+# 𓆩 ♱ 𓆪 𝐀𝐑𝐓𝐅𝐔𝐋'𝐒 𝐒𝐇𝐎𝐖 𓆩 ♱ 𓆪
  
 ![image alt](https://64.media.tumblr.com/983ab795758d0932c605540e7f72883b/db964c1bb7ce036a-a2/s640x960/5d017a1562781c30bd1247d8155f758494d68032.pnj)
 
