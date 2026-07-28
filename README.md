@@ -22,7 +22,7 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 
 </div>
 
-<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=ARTFUL'S%20PUPPETS%20★&color=a3a3a3&style=for-the-badge" />
+<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=𝘈𝘳𝘵𝘧𝘶𝘭'𝘴%20𝘗𝘶𝘱𝘱𝘦𝘵𝘴%20★&color=a3a3a3&style=for-the-badge" />
 
 .
 .
