@@ -26,7 +26,7 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 .
 .
 
-<img src="https://64.media.tumblr.com/0383a94c01fe7c7cde46198e5bb6bbe4/7495588209f12f0c-be/s2048x3072/fd4c2d6b8cdbf45cd1a46db8899ceab05feae359.pnj" width="50" >
+![image alt](https://64.media.tumblr.com/0383a94c01fe7c7cde46198e5bb6bbe4/7495588209f12f0c-be/s2048x3072/fd4c2d6b8cdbf45cd1a46db8899ceab05feae359.pnj width="50")
 
 ![image alt](https://64.media.tumblr.com/966264a4c3db1ae07c9da1750b5eb096/30ed33ed3f0ee6ad-c5/s2048x3072/03c824503671f1ec3f5bd6a947024d9a5911f29a.pnj)
 <div align="center">
