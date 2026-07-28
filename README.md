@@ -1,6 +1,6 @@
 <div align="center">
 
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/d022b4c64b163d3e577c2258e7a5c7bd1ac40538/tumblr_c0a2f4ad26f5416e3f6516f16992c286_89089200_2048.png)
+![image alt](https://64.media.tumblr.com/905563283202afad320ab41c57fd7bd3/5500ab958a238ece-43/s1280x1920/f0b25d1d0b9e532cb334aeb446705685b7ac92cf.pnj)
 # 𓆩 ♱ 𓆪 𝒜𝑅𝒯𝐹𝒰𝐿'𝓈 𝒫𝑅𝒪𝐹𝐼𝐿𝐸 𓆩 ♱ 𓆪
 
 ---
