@@ -10,7 +10,7 @@
 
 𝐁𝐄𝐀𝐑 𝐖𝐈𝐓𝐇 𝐌𝐄! 𝐈𝐓'𝐒 𝐔𝐍𝐅𝐈𝐍𝐈𝐒𝐇𝐄𝐃!
  
-![image alt](https://media1.tenor.com/m/pDwRV1BkDQEAAAAC/sad-artful.gif)
+<img width="1254" height="1254" alt="48d2a135-8b95-42f1-8c12-815e6bbb07a5" src="https://github.com/user-attachments/assets/c2ef5d35-07f7-4be6-b744-4b7a00fbc04c" />
 
 ❤︎
 
