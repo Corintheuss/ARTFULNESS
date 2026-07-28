@@ -16,6 +16,8 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 
 . . .
 
+<img src="https://64.media.tumblr.com/fa22c39ea532588317965f56630812ea/fff3f7a0cbd15afa-da/s1280x1920/85447fdfc45734fabe4956db636d187d50a64b66.pnj">
+
 </div>
 
 <img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Artful's%20Puppets%20★&color=a3a3a3&style=for-the-badge" />
