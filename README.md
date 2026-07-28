@@ -16,7 +16,7 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 
 <img src="https://64.media.tumblr.com/4a09720c12b1a09a4c9b1d9de6267da2/99caba011bca85d6-9e/s1280x1920/5c2a397a8dba219f8e402d929c2eb7b2459c063d.jpg" width="70">
 
-
+. . .
 
 <img src="https://64.media.tumblr.com/bac40bfcbf6e2f25220ed72a629b722e/dda350f108491d4a-ce/s250x400/bc83a323ffa4c09cdcc674002c2d8f4101017638.gifv" width="100">
 
