@@ -9,11 +9,8 @@
 . . .
 
 𝐁𝐄𝐀𝐑 𝐖𝐈𝐓𝐇 𝐌𝐄! 𝐈𝐓'𝐒 𝐔𝐍𝐅𝐈𝐍𝐈𝐒𝐇𝐄𝐃!
- 
-<img width="300" height="300" alt="ARTFUL_PFP_BY_ME_20260728201757" src="https://github.com/user-attachments/assets/81d27800-ac19-4a6e-9d11-83958b83401f" />
 
-
-❤︎ drawing by me .
+❤︎ 
 
 <img src="https://64.media.tumblr.com/fa22c39ea532588317965f56630812ea/fff3f7a0cbd15afa-da/s1280x1920/85447fdfc45734fabe4956db636d187d50a64b66.pnj" width="70">
 
