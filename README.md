@@ -10,7 +10,7 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 
 ![image alt](https://media.tenor.com/hp_-UsA63DoAAAAi/artful-artful-die-of-death.gif) 
 
-![image alt](https://64.media.tumblr.com/bac40bfcbf6e2f25220ed72a629b722e/dda350f108491d4a-ce/s250x400/bc83a323ffa4c09cdcc674002c2d8f4101017638.gifv)
+<img src="https://64.media.tumblr.com/bac40bfcbf6e2f25220ed72a629b722e/dda350f108491d4a-ce/s250x400/bc83a323ffa4c09cdcc674002c2d8f4101017638.gifv" width="50">
 
 </div>
 
@@ -20,5 +20,5 @@ NOTHING YETTTT!!!!!!!!!!!!!! RAHHHH!!!!!!!!!!!!!!!!!!!!
 .
 .
 
-<img src="https://64.media.tumblr.com/0383a94c01fe7c7cde46198e5bb6bbe4/7495588209f12f0c-be/s2048x3072/fd4c2d6b8cdbf45cd1a46db8899ceab05feae359.pnj" width="50" >
+![image alt](https://64.media.tumblr.com/0383a94c01fe7c7cde46198e5bb6bbe4/7495588209f12f0c-be/s2048x3072/fd4c2d6b8cdbf45cd1a46db8899ceab05feae359.pnj)
 <div align="center">
