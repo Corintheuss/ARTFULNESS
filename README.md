@@ -6,8 +6,7 @@
 ---
 
 ## ʙᴇᴀʀ ᴡɪᴛʜ ᴍᴇ ɪᴛ'ꜱ ᴜɴꜰɪɴɪꜱʜᴇᴅ!
-![image alt]([https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/WALLPAPER%202.png](https://media1.tenor.com/m/pDwRV1BkDQEAAAAC/sad-artful.gif))
-
+![image alt](https://media1.tenor.com/m/pDwRV1BkDQEAAAAC/sad-artful.gif)
 
 
 𓆩༺✧༻𓆪 
