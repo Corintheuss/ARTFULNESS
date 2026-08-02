@@ -13,7 +13,7 @@
 
 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍'𝐒 𝐂𝐎𝐑𝐈𝐍𝐓𝐇𝐈𝐀𝐍 𝐀𝐍𝐃 𝐀𝐑𝐓𝐅𝐔𝐋!
 
-★ ᴛʜᴀɴᴋ ʏᴏᴜ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ!</a> , <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> , & <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a> ★
+★ ᴛʜᴀɴᴋ ʏᴏᴜ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ!</a> , <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> , <a href="https://github.com/pt-nominations">ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a> , & <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a> ★
 
 > ✦ - 𝐇𝐞𝐥𝐥𝐨! 𝐈'𝐦 𝐂𝐨𝐫𝐢𝐧 / 𝐓𝐡𝐞𝐮𝐬 . ⸝⸝
 > 
