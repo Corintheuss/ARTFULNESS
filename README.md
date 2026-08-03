@@ -16,6 +16,7 @@
 ★ ᴛʜᴀɴᴋ ʏᴏᴜ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ</a> , <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> , <a href="https://github.com/pt-nominations">ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a> , <a href="https://github.com/pt-walk-of-fame">ᴘᴛ-ᴡᴀʟᴋ-ᴏꜰ-ꜰᴀᴍᴇ</a> , <a href="https://github.com/pt-medals">ᴘᴛ-ᴍᴇᴅᴀʟꜱ</a> , & <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a> ★
 
 > ✦ - 𝐇𝐞𝐥𝐥𝐨! 𝐈'𝐦 𝐂𝐨𝐫𝐢𝐧 / 𝐓𝐡𝐞𝐮𝐬 . ⸝⸝
+> ★ ʏᴏᴜ ᴄᴀɴ ᴊᴜꜱᴛ ᴄᴀʟʟ ᴍᴇ ᴄᴏʀɪɴ ᴏʀ ᴀʀᴛ :] ★
 > 
 > 𝐎𝐭𝐡𝐞𝐫 𝐧𝐚𝐦𝐞𝐬 𝐩𝐫𝐞𝐟: 𝐍𝐨𝐥𝐢, 𝐀𝐫𝐭𝐟𝐮𝐥, 𝐒𝐚𝐭𝐨𝐫𝐮, 𝐉𝐚𝐦𝐞𝐬 .
 > 
